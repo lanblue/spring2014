@@ -12,4 +12,4 @@ https://plus.google.com/101798998337209360825/posts/BciVydgoGFF
 Here are the links of my posts about meetups. One post is repeated, so please just ignore it. It is very interesting experience.
 Since I did not get opportunity to communicate with people with all kinds of background. working in all the fields. So 
 the experience with meetup is valuable for me. And I really learn something new. In this summer, I will learn more about
-Wordpress. Thanks.
+Wordpress. Thank you.
